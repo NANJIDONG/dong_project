@@ -1,1 +1,1 @@
-code is a part of my life,so for me,i must try my best to study hard.
+Code is a part of my life,for me,I must try my best to study hard.
